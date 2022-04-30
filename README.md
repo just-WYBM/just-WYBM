@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @just-WYBM
+- 👀 I’m interested in Softeare Dev
+- 🌱 I’m currently (slf)learning coding
